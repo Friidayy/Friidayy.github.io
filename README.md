@@ -1,0 +1,1 @@
+# Friidayy.github.io
